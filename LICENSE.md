@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows secure Filter: real-time-preview & collaboration-tools offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
